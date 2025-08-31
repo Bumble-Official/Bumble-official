@@ -12,7 +12,9 @@
                                  𖦏Toxic media fans!This includes → DSMP, HB/HH, CoD, True Crime, and more.
                                                 𖦏ᴘᴇᴏᴘʟᴇ ᴡʜᴏ ᴍᴀᴋᴇ ꜰᴜɴ ᴏꜰ ᴋɪɴɴɪɴɢ/ᴄᴏᴘɪɴɢ ᴍᴇᴄʜᴀɴɪꜱᴍꜱ.
                                               ⚠︎Zoos, Racists, Homophobes, Proshipers, Average DNI!⚠︎
-           ⚠︎Those who don't actively contribute or participate in fandom toxicity, feel free to interact! UNLESS, it's EXTEMELY toxic!!⚠︎
+                                  For those who don't actively contribute or participate in fandom toxicity ↓↓
+                                          Feel free to interact unless it is an extremely toxic fandom!!
+                                      I would be a hyprocite, as I am interested in some, but do not contribute!
                                                                
                                                                  /ᐠ - ˕ -マ ᶻ 𝗓 𐰁 
 
