@@ -13,7 +13,7 @@
                                                                      
                                                       /ᐠ - ˕ -マ ᶻ 𝗓 𐰁 
 
-                    DNI criteria, Proshippers, toxic communities/fandoms and active toxic participants.
+                 Basic DNI criteria, Proshippers, toxic communities/fandoms and active toxic participants.
                                                           
                                                   Some of my interests! ╰┈➤ 
             Hannibal (OG and NBC), Call of Duty, The Stanley Parable, Stardew Valley, Arcane, Warrior Cats, and some more!
